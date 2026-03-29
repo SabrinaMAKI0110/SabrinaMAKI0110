@@ -15,7 +15,7 @@
 ---
 ### 😄 Um pouco sobre mim
 ---
-  - 🧩 Gosto de quebra-cabeças
+  - 🧩 Gosto de montar quebra-cabeças
   - 🏐 Gosto de jogar queimada e vôlei
   - 🔢 Sou de exatas
   - 🐶 Amo cachorros
